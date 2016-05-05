@@ -1,0 +1,2 @@
+# http-answersforpilots.com-5003-t-C3-ACm-hi-E1-BB-83u-kh-E1-BA-A3-n-C4-83ng-hi-E1-BB-83n-th-E1-BB-8
+Hiện nay các dòng máy flagship luôn được trang bị màn hình công nghệ cao kết hợp với độ phân giải lớn. Và điện thoại LG G5 cũng không phải là 1 ngoại lệ. Được LG trang bị kích thước khá lớn 5,3 inch nhưng không vì vậy mà độ phân giải của máy dừng lại ở con số full HD http://answersforpilots.com/5003/t%C3%ACm-hi%E1%BB%83u-kh%E1%BA%A3-n%C4%83ng-hi%E1%BB%83n-th%E1%BB%8B-c%E1%BB%A7a-lg-g5
